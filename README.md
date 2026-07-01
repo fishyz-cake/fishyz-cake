@@ -10,3 +10,4 @@
 <p align="center"> i dont have any dni....,, iguessss?? just not 12 or lowerrrr..... (≧∀≦)</p>
 <p align="center"> im mostly with my girlfriend or with rain (or random sometimes.......) (๑>◡<๑) </p>
 <p align="center"> idk what to say else...,., my straw is probably in remake..... oh you can also commision me! more info later or on discord (о´∀`о) </p>
+![mahitoeyes](IMG_4954.jpeg)
